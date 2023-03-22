@@ -1,0 +1,1 @@
+# Krupenciks_Kristians_12.a_petdarbs
